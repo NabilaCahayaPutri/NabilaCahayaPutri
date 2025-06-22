@@ -1,8 +1,8 @@
 # 👋 Hi, I’m Nabila Cahaya Putri
 
-👀 I’m studying in Universitas Lampung
+👀 I’m interested on **sleep** (😴 seriously!)  
 🌱 I’m currently learning **HTML** and **PHP** (maybe...)  
-💕 I’m majoring in Computer Science  
+💕 I’m majoring in Computer Science    
 📫 How to reach me:  
 📧 [nabilacahaya013@gmail.com](mailto:nabilacahaya013@gmail.com)  
 
