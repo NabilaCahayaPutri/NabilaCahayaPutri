@@ -1,10 +1,12 @@
 # 👋 Hi, I’m Nabila Cahaya Putri
 
-👀 I’m interested on **sleep** (😴 seriously!)  
-🌱 I’m currently learning **HTML** and **PHP** (maybe...)  
-💕 I’m majoring in Computer Science    
-📫 How to reach me:  
-📧 [nabilacahaya013@gmail.com](mailto:nabilacahaya013@gmail.com)  
+😴 Sleep enthusiast (yes, it’s a real hobby!)  
+💻 Currently exploring the magical world of HTML & PHP (kinda… maybe…)  
+🎓 Computer Science major — powered by coffee & curiosity  
+🍜 Addicted to instant noodles and bubble tea 🧋  
+🐥 Slightly chaotic, but always eager to learn!  
+📫 Wanna connect or collab? Let’s talk!  
+📧 nabilacahaya013@gmail.com  
 
 ---
 
