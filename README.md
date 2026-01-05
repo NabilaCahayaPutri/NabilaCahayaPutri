@@ -3,7 +3,7 @@
 😴 Sleep enthusiast (yes, it’s a real hobby!)  
 💻 Currently exploring the magical world of HTML, PHP, & JS (kinda… maybe…)  
 🎓 Computer Science major — powered by coffee & curiosity  
-🍜 Addicted to Junk food and bubble tea 🧋  
+🍜 Addicted to Sushi & Matcha🧋  
 🐥 Slightly chaotic, but always eager to learn!  
 📫 Wanna connect or collab? Let’s talk!  
 📧 nabilacahaya013@gmail.com  
